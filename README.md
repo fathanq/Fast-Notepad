@@ -1,2 +1,2 @@
 # Fast-Notepad
-APK Link Download: https://ufile.io/n9fhkpve
+updated APK in repo
